@@ -32,6 +32,6 @@
 ---
 
 ## 📫 How to Reach Me  
-- Email: (mailto:jakshita770@gmail.com)  
+- Email: (jakshita770@gmail.com)  
 - LinkedIn: [Akshita Jain](https://www.linkedin.com/in/akshita-jain07/)
 
